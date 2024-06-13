@@ -1,2 +1,2 @@
 # games
-Random games made by me and blungi
+Random games made by Awilh_37 and blungi
